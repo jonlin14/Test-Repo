@@ -3,4 +3,4 @@
 
 ##### So what's the deal with airplane food?
 
-I like airplane food, it is tasty...lots of salt.
+I like Hawaiian food!
